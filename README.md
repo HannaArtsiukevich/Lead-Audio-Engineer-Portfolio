@@ -1,7 +1,4 @@
 # Lead-Audio-Engineer-Portfolio
-Professional Audio Engineering Portfolio | 6+ years of experience in multilingual audio production &amp;amp; QA
-# Hanna-Mezina
-Professional Audio Engineering Portfolio | 5+ years of experience in multilingual audio production &amp; QA
 # Hi there, I'm Hanna Mezina! 👋
 ### Lead Audio Engineer | Multilingual Content Producer | Audio Quality Assurance
 
