@@ -2,7 +2,7 @@
 # Hi there, I'm Hanna Mezina! 👋
 ### Lead Audio Engineer | Multilingual Content Producer | Audio Quality Assurance
 
-Expert in end-to-end audio production with 8+ years of experience. I specialize in high-scale projects,I bridge the gap between technical sound engineering and creative vision.
+Expert in end-to-end audio production with 6+ years of experience. I specialize in high-scale projects,I bridge the gap between technical sound engineering and creative vision.
 
 ---
 
